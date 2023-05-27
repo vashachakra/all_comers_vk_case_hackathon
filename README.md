@@ -1,0 +1,1 @@
+# all_comers_vk_case_hackathon
